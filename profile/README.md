@@ -9,4 +9,4 @@ Thanks for stopping by!
 
 ### Information
 [Website](https://perimetergaming.com)\
-[Discord Server](https://discord.gg/AYb3Un6)\
+[Discord Server](https://discord.gg/AYb3Un6)
